@@ -1,1 +1,1 @@
-0x1A. Application server by Marshal Zvinoira
+0x1A. Application Server By MARSHAL ZVINOIRA
